@@ -1,4 +1,4 @@
-#  
+#  underground re:rangers x Scripts offers the most advanced re:rangers x Script, with custom skins and auto-upgrade. Perfect for dominating any match.
 
 
 
